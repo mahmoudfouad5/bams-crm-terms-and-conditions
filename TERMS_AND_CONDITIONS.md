@@ -52,4 +52,4 @@ We may update these Terms at any time. Continued use after updates constitutes a
 
 For legal inquiries, contact:
 
-- Email: info@ezc-crm.ae
+- Email: info@ezc.ae
